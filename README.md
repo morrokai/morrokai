@@ -1,3 +1,4 @@
+
 <p align="center">
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 </p>
@@ -5,7 +6,7 @@
 
 
 <p align="center">
-<img width="680" height="401" alt="image" src="https://github.com/user-attachments/assets/1c100b03-0b5e-4741-88b7-cbbce6e8ec50" />
+<img width="3456" height="3340" alt="Untitled277_20261027043407" src="https://github.com/user-attachments/assets/c35ae14f-8301-4d62-a582-0c2b5e1f8245" />
 </p>
 
 
