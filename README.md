@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://github.com/morrokai/morrokai/blob/be180bd58a0e34b38f5d19876af6818df3c8758b/hi/2a4143a7f6ba988cd7a218e6f9fd3bd0.gif"width="100" height="100">
+<img src="https://github.com/morrokai/morrokai/blob/be180bd58a0e34b38f5d19876af6818df3c8758b/hi/2a4143a7f6ba988cd7a218e6f9fd3bd0.gif"width="110" height="110">
 <p align="center">
 𓎟𓎟𓎟𓎟
 
