@@ -9,13 +9,11 @@
 
 
 <p align="center">
- ꒰ㅤ
-ADULT !  ,  kai  smith  yume  𐂯
- ꒱
+꒰&nbsp;&nbsp;&nbsp;&nbsp;ADULT&nbsp;&nbsp;!&nbsp;&nbsp;,&nbsp;&nbsp;kai&nbsp;&nbsp;smith&nbsp;&nbsp;yume&nbsp;&nbsp;𐂯 &nbsp;&nbsp;   ꒱
 </p>
 
 <p align="center">
-always ㅤiwc   :   w2i
+always&nbsp;&nbsp;iwc&nbsp;&nbsp;&nbsp; :&nbsp;&nbsp;&nbsp;w2i
 </p>
 
 
