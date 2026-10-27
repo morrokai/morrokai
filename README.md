@@ -5,21 +5,17 @@
 𓎟𓎟𓎟𓎟
 </p>
 
-<p align="left">
+
 ꒰&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ADULT&nbsp;&nbsp;&nbsp;!&nbsp;&nbsp;&nbsp;,&nbsp;&nbsp;&nbsp;kai&nbsp;&nbsp;smith&nbsp;&nbsp;&nbsp;yume&nbsp;&nbsp;&nbsp;𐂯 &nbsp;&nbsp;&nbsp;&nbsp;   ꒱
 </p>
 
-<p align="left">
 <img src="https://github.com/morrokai/morrokai/blob/32348de52f8d2b6d89a9ac5cf73ae9990044c542/hi/01636c5434cd0462086620c60fdfec16.gif"width="50" height="50">
-</p>
 
-<p align="left">
 always&nbsp;&nbsp;&nbsp;iwc&nbsp;&nbsp;&nbsp;&nbsp; :&nbsp;&nbsp;&nbsp;&nbsp;w2i 
-</p>
 
-<p align="right">
+
 <img src="https://github.com/morrokai/morrokai/blob/d9f31df232f1b56c5f90f304dce008cde8e66a81/hi/IMG_5901.png"width="450" height="450">
-</p>
+
 
 
 
