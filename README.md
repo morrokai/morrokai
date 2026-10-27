@@ -5,7 +5,6 @@
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 </p>
 
-
 <p align="center">
 <img src="https://github.com/morrokai/morrokai/blob/d9f31df232f1b56c5f90f304dce008cde8e66a81/hi/IMG_5901.png"width="400" height="400">
 </p>
