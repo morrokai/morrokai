@@ -3,10 +3,6 @@
 <p align="center">
 𓎟𓎟𓎟𓎟
 
-<p align="center">
-<img src="https://github.com/morrokai/morrokai/blob/d9f31df232f1b56c5f90f304dce008cde8e66a81/hi/IMG_5901.png"width="480" height="480">
-</p>
-
 
 <p align="center">
 ꒰&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ADULT&nbsp;&nbsp;&nbsp;!&nbsp;&nbsp;&nbsp;,&nbsp;&nbsp;&nbsp;kai&nbsp;&nbsp;&nbsp;smith&nbsp;&nbsp;&nbsp;yume&nbsp;&nbsp;&nbsp;&nbsp;𐂯
@@ -18,3 +14,8 @@
 
 <p align="center">
 &nbsp;&nbsp;always&nbsp;&nbsp;&nbsp;iwc&nbsp;&nbsp;&nbsp;&nbsp; :&nbsp;&nbsp;&nbsp;&nbsp;w2i&nbsp;&nbsp;&nbsp;&nbsp;   ꒱
+
+
+<p align="center">
+<img src="https://github.com/morrokai/morrokai/blob/d9f31df232f1b56c5f90f304dce008cde8e66a81/hi/IMG_5901.png"width="480" height="480">
+</p>
