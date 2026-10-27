@@ -17,7 +17,7 @@
 
 <p align="center">
 always&nbsp;&nbsp;&nbsp;iwc&nbsp;&nbsp;&nbsp;&nbsp; :&nbsp;&nbsp;&nbsp;&nbsp;w2i 
-  <img src=https://github.com/morrokai/morrokai/blob/32348de52f8d2b6d89a9ac5cf73ae9990044c542/hi/01636c5434cd0462086620c60fdfec16.gif"width="100" height="100">
+<img src="https://github.com/morrokai/morrokai/blob/32348de52f8d2b6d89a9ac5cf73ae9990044c542/hi/01636c5434cd0462086620c60fdfec16.gif"width="100" height="100">
 </p>
 
 
