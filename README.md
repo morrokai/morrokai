@@ -8,7 +8,7 @@
 
 
 <p align="center">
-<img width="680" height="401" alt="image" src="https://github.com/user-attachments/assets/e4ad515d-217d-4960-a5e3-eb1e2992e091" />
+<img src="https://github.com/morrokai/morrokai/blob/28ae11e386eedaffc5854b6a161e196f5315c29f/hi/IMG_5898.png"width="300" height="300">
 </p>
 
 
