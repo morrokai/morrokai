@@ -1,6 +1,4 @@
-<p align="center">
-<img src="https://github.com/morrokai/morrokai/blob/d79136366ba62bbd88ec461a23419153de5fa8fa/hi/9d3221613e0d0972e2126aa7a2a67a9c.gif"width="300" height="300">
-</p> 
+
 <p align="center">
 𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟
 </p>
