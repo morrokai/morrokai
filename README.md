@@ -13,7 +13,7 @@
 </p>
 
 <p align="center">
-<img src="https://github.com/morrokai/morrokai/blob/32348de52f8d2b6d89a9ac5cf73ae9990044c542/hi/01636c5434cd0462086620c60fdfec16.gif"width="50" height="50">
+<img src="https://github.com/morrokai/morrokai/blob/32348de52f8d2b6d89a9ac5cf73ae9990044c542/hi/01636c5434cd0462086620c60fdfec16.gif"width="55" height="55">
 </p>
 
 <p align="center">
