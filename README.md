@@ -9,8 +9,8 @@
 
 
 <p align="center">
-꒰ㅤ
-ADULT ! , kai smith yume 𐂯
+ ꒰ㅤ
+ADULT !  ,  kai  smith  yume  𐂯
  ꒱
 </p>
 
