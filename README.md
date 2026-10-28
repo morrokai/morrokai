@@ -3,7 +3,7 @@
 <p align="center">
 🦴
 <p align="center">
-<img src="https://github.com/morrokai/morrokai/blob/506480f4b5fb60570a956556c3ede22dd09ee650/hi/IMG_5901.png"width="480" height="480">
+<img src="https://github.com/morrokai/morrokai/blob/506480f4b5fb60570a956556c3ede22dd09ee650/hi/IMG_5901.png"width="400" height="400">
 
 
 <p align="center">
