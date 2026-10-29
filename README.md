@@ -3,7 +3,7 @@
 <p align="center">
 🦴
 <p align="center">
-<img src="https://github.com/morrokai/morrokai/blob/506480f4b5fb60570a956556c3ede22dd09ee650/hi/IMG_5901.png"width="400" height="400">
+<img src="https://github.com/morrokai/morrokai/blob/506480f4b5fb60570a956556c3ede22dd09ee650/hi/IMG_5901.png"width="300" height="300">
 
 
 <p align="center">
@@ -16,3 +16,5 @@
 
 <p align="center">
 &nbsp;&nbsp;always&nbsp;&nbsp;&nbsp;iwc&nbsp;&nbsp;&nbsp;&nbsp; :&nbsp;&nbsp;&nbsp;&nbsp;w2i&nbsp;&nbsp;&nbsp;&nbsp;   ꒱
+<p align="center">
+<img width="300" height="151" alt="Bunny-GIF-source" src="https://github.com/user-attachments/assets/6926ddb7-d734-4db2-85a1-45533a898071" />
