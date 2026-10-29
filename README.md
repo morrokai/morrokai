@@ -3,7 +3,7 @@
 <p align="center">
 🦴
 <p align="center">
-<img width="300" height="81" alt="Bunny-GIF-source" src="https://github.com/user-attachments/assets/6926ddb7-d734-4db2-85a1-45533a898071" />
+<img width="300" height="181" alt="Bunny-GIF-source" src="https://github.com/user-attachments/assets/6926ddb7-d734-4db2-85a1-45533a898071" />
 <p align="center">
 ꒰&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ADULT&nbsp;&nbsp;&nbsp;!&nbsp;&nbsp;&nbsp;&nbsp;,&nbsp;&nbsp;&nbsp;&nbsp;kai&nbsp;&nbsp;&nbsp;smith&nbsp;&nbsp;&nbsp;yume&nbsp;&nbsp;&nbsp;&nbsp;𐂯
 </p>
