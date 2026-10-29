@@ -3,8 +3,7 @@
 <p align="center">
 🦴
 <p align="center">
-<img src="https://github.com/morrokai/morrokai/blob/506480f4b5fb60570a956556c3ede22dd09ee650/hi/IMG_5901.png"width="400" height="400">
-
+<img width="300" height="151" alt="Bunny-GIF-source" src="https://github.com/user-attachments/assets/6926ddb7-d734-4db2-85a1-45533a898071" /> <img width="324" height="317" alt="image" src="https://github.com/user-attachments/assets/b91a0534-099a-4d53-ab96-9eed6754afa3" />
 
 <p align="center">
 ꒰&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ADULT&nbsp;&nbsp;&nbsp;!&nbsp;&nbsp;&nbsp;&nbsp;,&nbsp;&nbsp;&nbsp;&nbsp;kai&nbsp;&nbsp;&nbsp;smith&nbsp;&nbsp;&nbsp;yume&nbsp;&nbsp;&nbsp;&nbsp;𐂯
