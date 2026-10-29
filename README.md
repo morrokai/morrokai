@@ -3,7 +3,7 @@
 <p align="center">
 🦴
 <p align="center">
-<img width="300" height="166" alt="Bunny-GIF-source" src="https://github.com/user-attachments/assets/6926ddb7-d734-4db2-85a1-45533a898071" /> <img width="200" height="165" alt="destinyshipping-ninjago" src="https://github.com/user-attachments/assets/eef31ea0-cb3d-4d97-a098-9bebc7c4956d" />
+<img width="300" height="151" alt="Bunny-GIF-source" src="https://github.com/user-attachments/assets/6926ddb7-d734-4db2-85a1-45533a898071" />
 <p align="center">
 ꒰&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;ADULT&nbsp;&nbsp;&nbsp;!&nbsp;&nbsp;&nbsp;&nbsp;,&nbsp;&nbsp;&nbsp;&nbsp;kai&nbsp;&nbsp;&nbsp;smith&nbsp;&nbsp;&nbsp;yume&nbsp;&nbsp;&nbsp;&nbsp;𐂯
 </p>
