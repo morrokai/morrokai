@@ -16,5 +16,3 @@
 
 <p align="center">
 &nbsp;&nbsp;always&nbsp;&nbsp;&nbsp;iwc&nbsp;&nbsp;&nbsp;&nbsp; :&nbsp;&nbsp;&nbsp;&nbsp;w2i&nbsp;&nbsp;&nbsp;&nbsp;   ꒱
-<p align="center">
-<img width="300" height="151" alt="Bunny-GIF-source" src="https://github.com/user-attachments/assets/6926ddb7-d734-4db2-85a1-45533a898071" />
