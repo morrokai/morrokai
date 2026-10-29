@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://github.com/morrokai/morrokai/blob/be180bd58a0e34b38f5d19876af6818df3c8758b/hi/2a4143a7f6ba988cd7a218e6f9fd3bd0.gif"width="105" height="105">
 <p align="center">
-🦴
+૮꒰˶• ༝ •˶꒱ა
 <p align="center">
 <img src="https://github.com/morrokai/morrokai/blob/506480f4b5fb60570a956556c3ede22dd09ee650/hi/IMG_5901.png"width="400" height="400">
 
